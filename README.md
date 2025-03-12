@@ -1,6 +1,6 @@
 # Alpha_Project
-Notion : https://www.notion.so/Alpha-Project-13fa7c449e85804c9d02cb8ea58f8354
-
+Notion : [https://www.notion.so/Alpha-Project-13fa7c449e85804c9d02cb8ea58f8354
+](https://brash-puffin-756.notion.site/Alpha-Project-13fa7c449e85804c9d02cb8ea58f8354?pvs=4)
 
 
   
